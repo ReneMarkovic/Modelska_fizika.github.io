@@ -1,1 +1,1 @@
-[https://renemarkovic.github.io/modelskafizika.github.io](https://renemarkovic.github.io/modelskafizika.github.io)
+[https://renemarkovic.github.io/Modelska_fizika.github.io](https://renemarkovic.github.io/Modelska_fizika.github.io)
